@@ -23,7 +23,7 @@
 
 点击访问：<a href="https://hl433.pages.dev/"> 每日分享最新黑料吃瓜资源</a>
 
-点击访问：<a href="https://cg66-05.pages.dev/">不打烊稀缺资源</a>
+点击访问：<a href="https://cg66-4.pages.dev/">吃瓜</a>
 
 点击访问：<a href="https://aw8-12.pages.dev/">暗网视频</a>
 
